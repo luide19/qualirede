@@ -1,0 +1,2 @@
+# qualirede
+ projeto atualizado novembro
